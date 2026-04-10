@@ -2,11 +2,13 @@
 
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/483f54cd-0bca-47f9-8e8c-4285deae31af)
+<img width="586" height="720" alt="image" src="https://github.com/user-attachments/assets/bc49bb38-59f6-4394-8df1-d00995182678" />
 
 $\color{#5cb811}{\text{boba / nova}}$
 
-[strawpage](https://novaaaspacezz.straw.page) [ata](https://novvaaspacezz.atabook.org) [pronouns](https://en.pronouns.page/@novaaspacezz)
+![image](https://github.com/user-attachments/assets/35df04d6-5dab-4e0c-ad36-e06d142cebc0)
+[strawpage](https://novaaaspacezz.straw.page) [ata](https://novvaaspacezz.atabook.org) [pronouns](https://en.pronouns.page/@novaaspacezz) ![image](https://github.com/user-attachments/assets/35df04d6-5dab-4e0c-ad36-e06d142cebc0)
+
 
 
 
