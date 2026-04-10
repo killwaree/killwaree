@@ -15,7 +15,8 @@ $\color{#5cb811}{\text{boba / nova}}$
 
 
 
-<p align="center">
+<div align="center">
+ 
   <img src="[![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&pause=1000&color=60A728&width=435&lines=Hey%2C+hey+rich+boy%2C+look+my+way;Hey%2C+hey+rich+boy%2C+make+my+day;Hey%2C+hey+boy%2C+you+look+so+fly)](https://git.io/typing-svg)" />
 </p>
 
