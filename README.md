@@ -6,10 +6,7 @@
 
 $\color{#5cb811}{\text{boba / nova}}$
 
-![image](https://github.com/user-attachments/assets/35df04d6-5dab-4e0c-ad36-e06d142cebc0)
-[strawpage](https://novaaaspacezz.straw.page) [ata](https://novvaaspacezz.atabook.org) [pronouns](https://en.pronouns.page/@novaaspacezz) ![image](https://github.com/user-attachments/assets/35df04d6-5dab-4e0c-ad36-e06d142cebc0)
-
-
+![image](https://github.com/user-attachments/assets/35df04d6-5dab-4e0c-ad36-e06d142cebc0) <sub>[strawpage](https://novaaaspacezz.straw.page)</sub> <sub>[ata](https://novvaaspacezz.atabook.org)</sub> <sub>[prns.page](https://en.pronouns.page/@novaaspacezz)</sub> ![image](https://github.com/user-attachments/assets/35df04d6-5dab-4e0c-ad36-e06d142cebc0)
 
 
 
