@@ -13,7 +13,7 @@
 <sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#5cb811}{\text{✧}}$  <sub> [ata](https://novvaaspacezz.atabook.org)</sub>$\color{#5cb811}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
 
 
-![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=+hackedcomputers&color=43780d)
+![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=+⟡&color=43780d)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zcydosxj74wmz72lehnublf7ym&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=24bf00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
