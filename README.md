@@ -21,4 +21,7 @@
 <img width="149" height="84" alt="image" src="https://github.com/user-attachments/assets/b40e1e8e-3c0e-4902-9dc6-15d48838db2d" />
 
 
+$\color{#5cb811}{\text{yes i like killware you can tell}}$
+
+
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/7f4b1236-df94-4e06-bd4f-30d9f4cbcbe5" />
