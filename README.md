@@ -1,4 +1,4 @@
-<img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/14383d6f-2f9e-4189-a043-4bda8c957da1" />
+t<img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/14383d6f-2f9e-4189-a043-4bda8c957da1" />
 
 <div align="center">
  
@@ -6,7 +6,7 @@
 
 <div align="center">
 
-<img width="1144" height="644" alt="image" src="https://github.com/user-attachments/assets/cf2b8359-f7df-4d3f-ac15-03caf5a859e1" />
+<img width="781" height="933" alt="image" src="https://github.com/user-attachments/assets/afe28ba9-5036-4e6a-b401-a615f1dba98d" />
 
 
 <sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#5cb811}{\text{✧}}$  <sub> [ata](https://novvaaspacezz.atabook.org)</sub>$\color{#5cb811}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
