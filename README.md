@@ -9,7 +9,7 @@
 <img width="1230" height="812" alt="image" src="https://github.com/user-attachments/assets/9b9b0367-8e07-403d-a196-5c6176a4dce1" />
 
 
-<sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#5cb811}{\text{✧}}$  <sub> [ata](https://novvaaspacezz.atabook.org)</sub>$\color{#5cb811}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
+<sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#5cb811}{\text{✧}}$  <sub> [ata](https://killware.atabook.org)</sub>$\color{#5cb811}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
 
 
 ![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=+⟡&color=43780d)
