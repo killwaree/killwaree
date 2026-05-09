@@ -6,7 +6,7 @@
 
 <div align="center">
 
-<img width="667" height="483" alt="image" src="https://github.com/user-attachments/assets/51e2688c-22f1-433d-9baa-e017c86e8613" />
+<img width="1230" height="812" alt="image" src="https://github.com/user-attachments/assets/9b9b0367-8e07-403d-a196-5c6176a4dce1" />
 
 
 <sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#5cb811}{\text{✧}}$  <sub> [ata](https://novvaaspacezz.atabook.org)</sub>$\color{#5cb811}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
