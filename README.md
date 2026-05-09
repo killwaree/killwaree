@@ -1,18 +1,18 @@
-<img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/14383d6f-2f9e-4189-a043-4bda8c957da1" />
+<img width="2048" height="327" alt="image" src="https://github.com/user-attachments/assets/d88e2657-5645-409a-9c26-87481139f5b0" />
 
 <div align="center">
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&pause=1000&color=60A728&width=435&lines=Hey%2C+hey+rich+boy%2C+look+my+way;Hey%2C+hey+rich+boy%2C+make+my+day;Hey%2C+hey+boy%2C+you+look+so+fly)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Nova+Square&pause=1000&color=C0C0C0&width=435&lines=Shut+up%2C+you're+stupid%2C+just+kiss+me)](https://git.io/typing-svg)
 
 <div align="center">
 
-<img width="1230" height="812" alt="image" src="https://github.com/user-attachments/assets/9b9b0367-8e07-403d-a196-5c6176a4dce1" />
+<img width="1178" height="819" alt="image" src="https://github.com/user-attachments/assets/2176f6d2-3f9b-47b6-930a-6347136074c4" />
 
 
-<sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#5cb811}{\text{✧}}$  <sub> [ata](https://killware.atabook.org)</sub>$\color{#5cb811}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
+<sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#b6bdbf}{\text{✧}}$  <sub> [ata](https://killware.atabook.org)</sub>$\color{#b6bdbf}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
 
 
-![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=+⟡&color=43780d)
+![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=+⟡&color=6b7175)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zcydosxj74wmz72lehnublf7ym&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=24bf00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
@@ -22,4 +22,4 @@
 
 
 
-<img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/7f4b1236-df94-4e06-bd4f-30d9f4cbcbe5" />
+<img width="2048" height="327" alt="image" src="https://github.com/user-attachments/assets/75c8b7ee-4627-4377-84bf-1ee045de97f8" />
