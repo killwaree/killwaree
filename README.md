@@ -8,6 +8,13 @@
 
 <img width="1200" height="837" alt="image" src="https://github.com/user-attachments/assets/ca13982b-261f-4e44-85a3-9a7ff281cb8e" />
 
+
+</sub> $\color{#a60825}{\text{Can it even be described?}}$
+
+
+</sub> $\color{#80061d}{\text{Time is ticking, hurry up.}}$
+
+
 <sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#d13313}{\text{✧}}$  <sub> [ata](https://killware.atabook.org)</sub>$\color{#d13313}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
 
 
