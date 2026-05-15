@@ -9,10 +9,12 @@
 <img width="1200" height="837" alt="image" src="https://github.com/user-attachments/assets/ca13982b-261f-4e44-85a3-9a7ff281cb8e" />
 
 
-</sub> $\color{#a60825}{\text{Can it even be described?}}$
+</sub> $\color{#a60825}{\text{The clock is ticking old friend}}$
 
 
-</sub> $\color{#80061d}{\text{Time is ticking, hurry up.}}$
+</sub> $\color{#80061d}{\text{So little time to do so many things}}$
+
+</sub> $\color{#6e0418}{\text{What will be the last thing you will ever do?}}$
 
 
 <sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#d13313}{\text{✧}}$  <sub> [ata](https://killware.atabook.org)</sub>$\color{#d13313}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
