@@ -17,7 +17,7 @@
 </sub> $\color{#6e0418}{\text{What will be the last thing you will ever do?}}$
 
 
-<sub>[strawpage](https://novaaaspacezz.straw.page)</sub> $\color{#d13313}{\text{✧}}$  <sub> [ata](https://killware.atabook.org)</sub>$\color{#d13313}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
+<sub>[strawpage](https://carlthenpccc.straw.page)</sub> $\color{#d13313}{\text{✧}}$  <sub> [ata](https://killware.atabook.org)</sub>$\color{#d13313}{\text{✧}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
 
 
 ![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=+⟡&color=7a0916)
