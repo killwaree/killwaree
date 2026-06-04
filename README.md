@@ -15,6 +15,7 @@
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b2eac42a-2834-41b3-8cf3-e150c3a8104b" />
 
+![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=✦--―+&color=b88a0b)
 
 
 </sub> $\color{#e3cc78}{\text{If you cage the beast, the beast will get angry!}}$
