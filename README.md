@@ -6,7 +6,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Nova+Square&pause=1000&color=1B4CB8&width=435&lines=We+can+do+it+softcore+if+you+want;But+you+should+know+I+take+it+both+ways)](https://git.io/typing-svg)
 
 
-<img width="1199" height="766" alt="image" src="https://github.com/user-attachments/assets/5b323389-27cd-41c1-8ffc-df8c572efff9" />
+<img width="817" height="572" alt="image" src="https://github.com/user-attachments/assets/e9f867be-a67f-4fed-8520-7af1357dcf6c" />
 
 
 
