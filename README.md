@@ -1,36 +1,39 @@
-<img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/92ccc9a2-3a7c-42a7-9d39-1046a4e97981" />
+<img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/01bb9aa1-29cc-4b75-962b-cfef4b5d262c" />
+
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair+Display&pause=1000&color=273D52&width=435&lines=%E2%80%9CWhat+are+you+talking+about%3F+I+never+freeze.%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Nova+Square&pause=1000&color=1B4CB8&width=435&lines=We+can+do+it+softcore+if+you+want;But+you+should+know+I+take+it+both+ways)](https://git.io/typing-svg)
 
 
-<img width="800" height="624" alt="image" src="https://github.com/user-attachments/assets/a845215e-de2a-49e4-8e21-e8940d4ef998" />
-
-![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=ᩭᘏᗢ-―+&color=272c63)
-
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f1a0784f-a2cb-4313-966b-c3d6de2f3f0b" />
-
-
-</sub> $\color{#7483ad}{\text{Wakanda Forever!}}$
-
-</sub> $\color{#5a6394}{\text{If anyone found out what we truly are, what we possess... it could destroy the world.}}$
-
-</sub> $\color{#46467d}{\text{Today we don't fight for one life, we fight for all of them.}}$
-
-</sub> $\color{#322b57}{\text{This ends today!}}$
+<img width="1199" height="766" alt="image" src="https://github.com/user-attachments/assets/5b323389-27cd-41c1-8ffc-df8c572efff9" />
 
 
 
-<img width="2000" height="200" alt="image" src="https://github.com/user-attachments/assets/005dbba9-ec2d-49e7-9203-2de73b9a8966" />
+![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=ʚ♡ɞ-―+&color=0a0680)
+
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0f7ae98f-1405-47ba-88a7-c7716df95359" />
+
+
+</sub> $\color{#7b84e8}{\text{I'm your Tamagotchi}}$
+
+</sub> $\color{#4e5ade}{\text{So happy that you love me}}$
+
+</sub> $\color{#2a38d1}{\text{And we should be together forever and forever!}}$
+
+<img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/26b2ac7a-95b3-4f34-b0ee-09a146856eb8" />
+
 
 <div align="center">
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d9ee274c-69d2-49aa-83e6-aafdd1fde2bd" />
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6e1f896f-9757-467b-a795-c32073b4a9a6" />
 
-<sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#3b4654}{\text{𑄝}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#3b4654}{\text{𑄝}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
+
+<sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#1825ad}{\text{꣑ৎ}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#1825ad}{\text{꣑ৎ}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zcydosxj74wmz72lehnublf7ym&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=24bf00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-<img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/b054da18-495c-4c38-906c-0b2300e623c3" />
+<img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/aae5465e-05ad-4723-b610-65559bb94907" />
+
+
