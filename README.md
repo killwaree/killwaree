@@ -1,39 +1,45 @@
-<img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/01bb9aa1-29cc-4b75-962b-cfef4b5d262c" />
+<img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/650c221f-2cd3-4ae0-b5ce-5697a240decd" />
+
 
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Nova+Square&pause=1000&color=1B4CB8&width=435&lines=We+can+do+it+softcore+if+you+want;But+you+should+know+I+take+it+both+ways)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair+Display&pause=1000&color=FFB4DA&width=435&lines=It's+good+that+we+followed+the+plan.)](https://git.io/typing-svg)
 
 
-<img width="817" height="572" alt="image" src="https://github.com/user-attachments/assets/e9f867be-a67f-4fed-8520-7af1357dcf6c" />
+<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/c599ea0c-4e38-4bff-b254-1cc00b74f763" />
 
 
 
-![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=ʚ♡ɞ-―+&color=0a0680)
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0f7ae98f-1405-47ba-88a7-c7716df95359" />
+![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=❀+&color=ed87b3)
+
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/25ccbdba-9d43-4577-abe0-8dd25a40dffa" />
 
 
-</sub> $\color{#7b84e8}{\text{I'm your Tamagotchi}}$
+</sub> $\color{#f5409a}{\text{You're rusty today, Sling.}}$
 
-</sub> $\color{#4e5ade}{\text{So happy that you love me}}$
+</sub> $\color{#f060a8}{\text{Really, brother?}}$
 
-</sub> $\color{#2a38d1}{\text{And we should be together forever and forever!}}$
+</sub> $\color{#ed95ce}{\text{Keep trying, Katana.}}$
 
-<img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/26b2ac7a-95b3-4f34-b0ee-09a146856eb8" />
+<img width="1920" height="128" alt="image" src="https://github.com/user-attachments/assets/0c7f9505-df4d-4ddb-846f-b40a66353be4" />
+
 
 
 <div align="center">
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6e1f896f-9757-467b-a795-c32073b4a9a6" />
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ff295391-4000-48fe-86ff-e80bea73f3eb" />
 
 
-<sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#1825ad}{\text{꣑ৎ}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#1825ad}{\text{꣑ৎ}}$<sub> [prns.page](https://en.pronouns.page/@novaaspacezz)</sub>
+<sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#ed95ce}{\text{꣑ৎ}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#ed95ce}{\text{꣑ৎ}}$<sub> [prns](https://en.pronouns.page/@novaaspacezz)</sub>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zcydosxj74wmz72lehnublf7ym&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=24bf00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-<img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/aae5465e-05ad-4723-b610-65559bb94907" />
 
+
+
+<img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/409d1e83-8bc1-4e1e-8ea3-c317c9241e6d" />
 
