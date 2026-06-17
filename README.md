@@ -20,7 +20,22 @@
 </sub> $\color{#632e25}{\text{Tony... there was no other way.}}$
 
 
-<img width="3000" height="120" alt="image" src="https://github.com/user-attachments/assets/9762c6df-2752-47ea-bc7b-7b8cc53e3312" />
+<details>
+
+<summary> ${\color{#7a3c2b} lalala }$ </summary>
+
+  $\texttt{\color{#db9f8f} boba or nova }$
+
+  $\texttt{\color{#b87d6c} any pronouns or they them no fem terms please . }$
+
+  $\texttt{\color{#965d4d} no dnis i block freely :/ }$
+
+  $\texttt{\color{#874c3b} w2i cuz im mostly gonna be offtab ! }$
+
+  $\texttt{\color{#693325} c*h is encouraged ! i dont bite :-) }$
+
+</details>
+
 
 
 
