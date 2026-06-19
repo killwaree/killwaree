@@ -28,7 +28,7 @@
 
   $\texttt{\color{#b87d6c} any pronouns or they them no fem terms please . }$
 
-  $\texttt{\color{#965d4d} no dnis i block freely :/ }$
+  $\texttt{\color{#965d4d} -13 iwc no dnis i block freely :/ }$
 
   $\texttt{\color{#874c3b} w2i cuz im mostly gonna be offtab ! }$
 
