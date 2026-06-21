@@ -5,7 +5,10 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair+Display&pause=1000&color=5A2912&width=435&lines=I+love+you+in+every+universe.)](https://git.io/typing-svg)
 
 
-<img width="829" height="1080" alt="image" src="https://github.com/user-attachments/assets/3ebb62bc-53d7-4ea7-be9d-644682638795" />
+
+<p align="center">
+  <img src="https://files.catbox.moe/i7wluw.png" alt="Logo" width="1200">
+</p>
 
 
 
@@ -13,7 +16,9 @@
 
 ![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=(¬_¬")+&color=632b21)
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/00b05456-6c9b-404f-828a-3a9364c21e9f" />
+
+
+
 
 
 
@@ -41,9 +46,7 @@
 
 
 
-<div align="center">
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/9be1aac0-c339-48bf-8fee-6f45ab1119d8" />
 
 
 
