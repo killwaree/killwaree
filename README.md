@@ -6,10 +6,9 @@
 
 
 
-<div align="center">
-
-
-<img width="829" height="1080" alt="image" src="https://github.com/user-attachments/assets/cc95813c-2437-4878-b954-5a4a24813d96" />
+<p align="center">
+  <img src="https://files.catbox.moe/i7wluw.png" alt="Logo" width="1000">
+</p>
 
 
 
