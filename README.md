@@ -2,60 +2,57 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair+Display&pause=1000&color=5A2912&width=435&lines=I+love+you+in+every+universe.)](https://git.io/typing-svg)
+
+<img align="center" src="https://files.catbox.moe/kznorn.gif" height = 200>
 
 
+![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=♡+&color=db4a30)
 
-<p align="center">
-  <img src="https://files.catbox.moe/i7wluw.png" alt="Logo" width="1000">
-</p>
+<div align="center">
+<br>
+  <table>
+    <tr>
+      <td> 
+       　　　<p>
+<img align="center" src="https://files.catbox.moe/oobnfd.png" height = 400>
+            <br>
+            <div align="center">
+            </sub> $\color{#db553d}{\text{The truth is... I am Iron Man.}}$
+            <br>
+              
+   <details>
+              
+<summary> ${\color{#b03b27} info }$ </summary>
 
+  $\texttt{\color{#9e3523} boba or nova }$
 
+  $\texttt{\color{#852a1b} any pronouns or they them}$
 
+  $\texttt{\color{#732114} -13 iwc . basic dni criteria and i block freely :/ }$
 
+  $\texttt{\color{#631c10} w2i cuz im mostly gonna be offtab ! }$
 
-![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=(¬_¬")+&color=632b21)
+  $\texttt{\color{#5e1b10} c*h is encouraged ! i dont bite :-) }$
 
-
-
-
-
-
-
-</sub> $\color{#632e25}{\text{Tony... there was no other way.}}$
-
-
-<details>
-
-<summary> ${\color{#7a3c2b} lalala }$ </summary>
-
-  $\texttt{\color{#db9f8f} boba or nova }$
-
-  $\texttt{\color{#b87d6c} any pronouns or they them no fem terms please . }$
-
-  $\texttt{\color{#965d4d} -13 iwc no dnis i block freely :/ }$
-
-  $\texttt{\color{#874c3b} w2i cuz im mostly gonna be offtab ! }$
-
-  $\texttt{\color{#693325} c*h is encouraged ! i dont bite :-) }$
-
-</details>
-
-
-
-
-<p align="center">
-  <img src="https://files.catbox.moe/fknkhv.png" alt="Logo" width="20">
-</p>
+</details> 
+               </p>
+     <br>
+      </td>
+    </tr>
+  </table>
 
 
 
 
 
-<sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#853b2e}{\text{꣑ৎ}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#853b2e}{\text{꣑ৎ}}$<sub> [prns](https://pronouns.cc/@novaaspacezzzz)</sub>
+
+
+
+<sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#ba2d14}{\text{⋮}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#ba2d14}{\text{⋮}}$<sub> [pronouns.cc](https://en.pronouns.page/@novaaspacezz)</sub>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zcydosxj74wmz72lehnublf7ym&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=24bf00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+<img align="center" src="https://files.catbox.moe/cms0a5.gif" height = 200>
 
 
 
