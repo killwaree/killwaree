@@ -52,7 +52,7 @@
 
 
 
-<sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#853b2e}{\text{꣑ৎ}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#853b2e}{\text{꣑ৎ}}$<sub> [prns](https://en.pronouns.page/@novaaspacezz)</sub>
+<sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#853b2e}{\text{꣑ৎ}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#853b2e}{\text{꣑ৎ}}$<sub> [prns](https://pronouns.cc/@novaaspacezzzz)</sub>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zcydosxj74wmz72lehnublf7ym&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=24bf00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
