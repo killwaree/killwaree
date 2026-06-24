@@ -44,8 +44,9 @@
 
 
 
-
-
+<img align="center" src="https://files.catbox.moe/pgp6h6.webp" height = 400>
+<img align="center" src="https://files.catbox.moe/q3a75o.webp" height = 400>
+<img align="center" src="https://files.catbox.moe/cqgio8.webp" height = 400>
 
 
 <sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#ba2d14}{\text{⋮}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#ba2d14}{\text{⋮}}$<sub> [pronouns.cc](https://en.pronouns.page/@novaaspacezz)</sub>
