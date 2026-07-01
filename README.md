@@ -6,7 +6,7 @@
 <img align="center" src="https://files.catbox.moe/d1s7we.gif" height = 200>
 
 
-![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=♡+&color=4aed6a)
+![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=♡+&color=89d177)
 
 <div align="center">
 <br>
