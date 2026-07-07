@@ -2,7 +2,7 @@
 
 <div align="center">
 
-<a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=portals&color=f7dec6&labelColor=872d0f&logo=square"/></a>
+<a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=universes&color=f7dec6&labelColor=872d0f&logo=square"/></a>
 
 
 
