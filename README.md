@@ -2,56 +2,22 @@
 
 <div align="center">
 
-
-<img align="center" src="https://files.catbox.moe/d1s7we.gif" height = 200>
-
-
-![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=♡+&color=89d177)
-
-<div align="center">
-<br>
-  <table>
-    <tr>
-      <td> 
-       　　　<p>
-<img align="center" src="https://files.catbox.moe/as1hht.png" height = 400>
-            <br>
-            <div align="center">
-            </sub> $\color{#adc4b3}{\text{Cool poses, Kris!}}$
-            <br>
-              
-   <details>
-              
-<summary> ${\color{#2fad0c} info }$ </summary>
-
-  $\texttt{\color{#08850a} boba or nova }$
-
-  $\texttt{\color{#08750a} any pronouns or they them}$
-
-  $\texttt{\color{#076309} -13 iwc . basic dni criteria and i block freely :/ }$
-
-  $\texttt{\color{#064f1a} w2i cuz im mostly gonna be offtab ! }$
-
-  $\texttt{\color{#adc4b3} c*h is encouraged ! i dont bite :-) }$
-
-</details> 
-               </p>
-     <br>
-      </td>
-    </tr>
-  </table>
+<a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=portals&color=f7dec6&labelColor=872d0f&logo=square"/></a>
 
 
 
-<img align="center" src="https://files.catbox.moe/ok9lrj.gif" height = 200>
-<img align="center" src="https://files.catbox.moe/0ajtli.gif" height = 200>
-<img align="center" src="https://files.catbox.moe/zty6vk.gif" height = 200>
+
+<img align="left" src="https://files.catbox.moe/qqfs30.png" height = 400>
+
+<img align="center" src="https://files.catbox.moe/c4fj8f.png" height = 300>
+
+         
+</sub>$\color{#a13a0e}{\text{I}}$<sub> </sub>$\color{#b38f0c}{\text{love}}$<sub> </sub>$\color{#0d6391}{\text{𝘆𝗼𝘂}}$<sub> </sub>$\color{#a13a0e}{\text{in}}$<sub> </sub>$\color{#b38f0c}{\text{every}}$<sub> </sub>$\color{#0d6391}{\text{𝘂𝗻𝗶𝘃𝗲𝗿𝘀𝗲.}}$<sub>
 
 
 
-<sub>[strawpage](https://carlthenpccc.straw.page) </sub> $\color{#85db70}{\text{⋮}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#85db70}{\text{⋮}}$<sub> [pronouns.cc](https://en.pronouns.page/@novaaspacezz)</sub>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zcydosxj74wmz72lehnublf7ym&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=24bf00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<sub>[strawpage](https://doctorrstrangee.straw.page) </sub> $\color{#ba2d14}{\text{⋮}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#ba2d14}{\text{⋮}}$<sub> [pronouns.cc](https://en.pronouns.page/@novaaspacezz)</sub>
 
 
 
