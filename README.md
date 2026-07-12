@@ -17,7 +17,7 @@
 
 
 
-<sub>[strawpage](https://doctorrstrangee.straw.page) </sub> $\color{#ba2d14}{\text{⋮}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#ba2d14}{\text{⋮}}$<sub> [pronouns.cc](https://en.pronouns.page/@novaaspacezz)</sub>
+<sub>[strawpage](https://doctorrstrangee.straw.page) </sub> $\color{#ba2d14}{\text{⋮}}$  <sub> [ata](https://killware.atabook.org) </sub>$\color{#ba2d14}{\text{⋮}}$<sub> [pronouns.cc](https://pronouns.cc/@novaaspacezzzz)</sub>
 
 
 
