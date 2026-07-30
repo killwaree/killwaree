@@ -37,5 +37,5 @@
 <img align="center" src="https://files.catbox.moe/ncldpn.png" height = 60 width = 100>
    
  <a href="https://pronouns.cc/@novaaspacezzzz">
-　　 　　　<img align="center" src="https://files.catbox.moe/ftxxkz.png" height = 60 width = 100>
+　　 　　<img align="center" src="https://files.catbox.moe/ftxxkz.png" height = 60 width = 100>
 
