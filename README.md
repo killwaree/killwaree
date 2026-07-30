@@ -1,3 +1,5 @@
+
+</sub>$\color{#a13a0e}{\text{the ponytowns doctor strange}}$<sub>
 <img align="right" src="https://files.catbox.moe/5ce141.png" height = 500 width = 500>
 
 
@@ -29,7 +31,7 @@
     </tr>
   </table>
 
-<sub>[pt hall of medias ponytown doctor strange](https://github.com/pt-hall-of-media) </sub>
+<sub>[pt hall of media](https://github.com/pt-hall-of-media) </sub>
 
  <a href="https://killware.atabook.org">
 <img align="center" src="https://files.catbox.moe/g7m0ys.png" height = 60 width = 100>
