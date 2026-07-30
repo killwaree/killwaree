@@ -29,6 +29,7 @@
     </tr>
   </table>
 
+<sub>[pt hall of medias ponytown doctor strange](https://github.com/pt-hall-of-media) </sub>
 
  <a href="https://killware.atabook.org">
 <img align="center" src="https://files.catbox.moe/g7m0ys.png" height = 60 width = 100>
