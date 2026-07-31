@@ -31,8 +31,14 @@
     </tr>
   </table>
 
+
+<details>
+  <summary> $${\color{#ad482b}thank \space you \space bro}$$</summary>
+
 <sub>[pt hall of media](https://github.com/pt-hall-of-media) </sub>
 <sub>[fans town](https://github.com/fans-town)<sub>
+
+</details>
 
  <a href="https://killware.atabook.org">
 <img align="center" src="https://files.catbox.moe/g7m0ys.png" height = 60 width = 100>
