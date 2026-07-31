@@ -29,7 +29,7 @@
 
 </div>
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀<img align="center" src="https://files.catbox.moe/wxxtax.gif" height = 20 width = 90>　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀<img align="center" src="https://files.catbox.moe/wxxtax.gif" height = 20 width = 90>　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　　  　　　　
 <img align="left" src="https://files.catbox.moe/rroymw.png" height = 350>
 
   </td>
