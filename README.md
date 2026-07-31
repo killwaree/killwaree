@@ -45,7 +45,7 @@
 ⠀ ⠀ ⠀⠀<img align="center" src="https://files.catbox.moe/sxpn4n.gif" height = 20 width = 90>
 
 <details>
-  <summary> $${\color{#402124}thank \space you \space bro}$$</summary>
+  <summary> $${\color{#4d2531}thank \space you \space bro}$$</summary>
 
 <sub>[pt hall of media](https://github.com/pt-hall-of-media) </sub>
 <sub>[fans town](https://github.com/fans-town)</sub>
