@@ -48,8 +48,8 @@
   <summary> $${\color{#402124}thank \space you \space bro}$$</summary>
 
 <sub>[pt hall of media](https://github.com/pt-hall-of-media) </sub>
-<sub>[fans town](https://github.com/fans-town)<sub>
-<sub>[pony town walk of fame](https://github.com/pt-walk-of-fame)<sub>
+<sub>[fans town](https://github.com/fans-town)</sub>
+<sub>[pony town walk of fame](https://github.com/pt-walk-of-fame)</sub>
 
 </details>
 
