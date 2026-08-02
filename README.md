@@ -52,6 +52,7 @@
 <sub>[pony town walk of fame](https://github.com/pt-walk-of-fame)</sub>
 <sub>[pt contributers](https://github.com/pt-contributers)</sub>
 <sub>[pt of awesomeness](https://github.com/pt-of-awesomeness)</sub>
+<sub>[pt medals](https://github.com/pt-medals)</sub>
 
 
 </details>
