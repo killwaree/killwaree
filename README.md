@@ -55,7 +55,7 @@
 <sub>[pt medals](https://github.com/pt-medals)</sub>
 <sub>[pt nominations](https://github.com/pt-nominations)</sub>
 <sub>[ponytown nominations](https://github.com/ponytown-nominations)</sub>
-
+<sub>[shiptown](https://github.com/ship-town)</sub>
 
 </details>
 
