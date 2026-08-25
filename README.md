@@ -50,5 +50,5 @@ $\color{#3c2882}\textsf{doctor}$ㅤ $\color{#8172b5}\textsf{strange}$ㅤ $\color
 <a href="https://letslaydownthebeatt.straw.page">
 <img align="center" src="https://files.catbox.moe/7dnyr0.png" height = 150 width = 150>
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀<a href="https://pronouns.cc/@novaaspacezzzz">
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀<a href="https://pronouns.cc/@novaaspacezzzz">
 <img align="center" src="https://files.catbox.moe/m9u41o.png" height = 150 width = 150>
