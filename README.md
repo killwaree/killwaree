@@ -42,7 +42,7 @@ $\color{#3c2882}\textsf{doctor}$ㅤ $\color{#8172b5}\textsf{strange}$ㅤ $\color
 ⠀⠀ ⠀ ⠀⠀
 <p align="center"><img width="300" src="https://files.catbox.moe/5f8bve.png" alt="!" align="left" width="400" /></p>
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀
-<p align="center"><img width="300" src="https://files.catbox.moe/2vxxs7.png" alt="!" align="center" width="300" /></p>
+<p align="center"><img width="300" src="https://files.catbox.moe/2vxxs7.png" alt="!" align="left" width="300" /></p>
 ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀
 <a href="https://killware.atabook.org">
 <img align="center" src="https://files.catbox.moe/zszf6o.png" height = 150 width = 150>
