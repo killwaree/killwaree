@@ -1,3 +1,5 @@
+<p align="center"><img width="800" src="https://files.catbox.moe/ykex2r.png" alt="!" align="center" width="800" /></p>
+
 ⠀ ⠀ ⠀⠀[![Hits](https://hits.sh/github.com/killwaree.svg?style=plastic&label=(%E1%B5%95%E2%80%94%E1%B4%97%E2%80%94)&extraCount=1000000&color=300c60&labelColor=514c8d&logo=roblox)](https://hits.sh/github.com/killwaree/)
 
 <p align="center"><img width="200" src="https://files.catbox.moe/42lj9c.png" alt="!" align="left" width="200" /></p>
@@ -52,3 +54,5 @@ $\color{#3c2882}\textsf{doctor}$ㅤ $\color{#8172b5}\textsf{strange}$ㅤ $\color
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀<a href="https://pronouns.cc/@novaaspacezzzz">
 <img align="center" src="https://files.catbox.moe/m9u41o.png" height = 150 width = 150>
+
+<p align="center"><img width="800" src="https://files.catbox.moe/1hesi1.png" alt="!" align="center" width="800" /></p>
