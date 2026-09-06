@@ -16,6 +16,9 @@
 <sub>[pt nominations](https://github.com/pt-nominations)</sub>
 <sub>[ponytown nominations](https://github.com/ponytown-nominations)</sub>
 <sub>[shiptown](https://github.com/ship-town)</sub>
+<sub>[ponytown rewards](https://github.com/Ponytowns-rewards)</sub>
+
+
 
 </details>
 
