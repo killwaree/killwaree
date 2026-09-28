@@ -57,7 +57,7 @@ $\color{#5e344b}\textsf{doctor}$ㅤ $\color{#4f2848}\textsf{strange}$ㅤ $\color
 
 <p align="center"><img width="200" src="https://i.postimg.cc/fW5SwFB1/Untitled1912-20260912124447.png" alt="!" align="left" width="200" /></p>
 
-<a href="https://killware.atabook.org" target="_blank"><img align="center" src="https://i.postimg.cc/t4XNDf2t/Untitled1912-20260912141459.png" alt="atabook" width="15%"/></a>ㅤ <a href="https://letslaydownthebeatt.straw.page" target="_blank"><img align="center" src="https://i.postimg.cc/cLXMzmzt/Untitled1912-20260912141502.png" alt="strawpage" width="15%"/></a>⠀ ⠀ ⠀ㅤ <a href="https://pronouns.cc/@novaaspacezzzz" target="_blank"><img align="center" src="https://i.postimg.cc/xdZGfdYG/Untitled1912-20260912141455.png" alt="prns" width="15%"/></a>
+<a href="https://killware.atabook.org" target="_blank"><img align="center" src="https://i.postimg.cc/t4XNDf2t/Untitled1912-20260912141459.png" alt="atabook" width="15%"/></a>ㅤ <a href="https://haminationss.straw.page" target="_blank"><img align="center" src="https://i.postimg.cc/cLXMzmzt/Untitled1912-20260912141502.png" alt="strawpage" width="15%"/></a>⠀ ⠀ ⠀ㅤ <a href="https://pronouns.cc/@novaaspacezzzz" target="_blank"><img align="center" src="https://i.postimg.cc/xdZGfdYG/Untitled1912-20260912141455.png" alt="prns" width="15%"/></a>
 
 
 ⠀
