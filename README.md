@@ -1,4 +1,7 @@
-<img width="600" src="https://files.catbox.moe/cad68s.png" alt="hi" align="center" width="600" /></p>
+<img width="800" src="https://files.catbox.moe/f3ffux.gif" alt="hi" align="center" width="600" /></p>
+
+<img width="300" src="https://files.catbox.moe/cad68s.png" alt="hi" align="center" width="300" /></p>
+
 
 [![Hits](https://hits.sh/github.com/killwaree.svg?style=plastic&label=subscribers&extraCount=4000000&color=9572a0&labelColor=000000)](https://hits.sh/github.com/killwaree/)
 
@@ -56,4 +59,6 @@ $\color{#ad8db5}\text{pony}$ $\color{#c4a3cc}\text{town}$
 
 
 
-<img width="600" src="https://files.catbox.moe/qnnbx4.png" alt="hi" align="center" width="600" />
+<img width="300" src="https://files.catbox.moe/qnnbx4.png" alt="hi" align="right" width="300" />
+
+<img width="800" src="https://files.catbox.moe/l2v5wt.png" alt="hi" align="center" width="600" /></p>
