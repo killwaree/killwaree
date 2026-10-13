@@ -34,12 +34,12 @@ $\color{#ad8db5}\text{pony}$ $\color{#c4a3cc}\text{town}$
   </tr>
 </table>
 
-<img width="150" src="https://files.catbox.moe/izq08r.webp" alt="hi" align="left" width="250" /></p>
-<img width="150" src="https://files.catbox.moe/ick5nc.gif" alt="hi" align="left" width="250" /></p>
-<img width="150" src="https://files.catbox.moe/ezs5ul.gif" alt="hi" align="left" width="250" /></p>
-<img width="150" src="https://files.catbox.moe/n3z6e0.gif" alt="hi" align="left" width="250" /></p>
-<img width="150" src="https://files.catbox.moe/rjsfrg.gif" alt="hi" align="left" width="250" /></p>
-<img width="160" src="https://files.catbox.moe/z8g0zf.png" alt="hi" align="left" width="250" /></p>
+<img width="100" src="https://files.catbox.moe/izq08r.webp" alt="hi" align="left" width="250" /></p>
+<img width="100" src="https://files.catbox.moe/ick5nc.gif" alt="hi" align="left" width="250" /></p>
+<img width="100" src="https://files.catbox.moe/ezs5ul.gif" alt="hi" align="left" width="250" /></p>
+<img width="100" src="https://files.catbox.moe/n3z6e0.gif" alt="hi" align="left" width="250" /></p>
+<img width="100" src="https://files.catbox.moe/rjsfrg.gif" alt="hi" align="left" width="250" /></p>
+<img width="110" src="https://files.catbox.moe/z8g0zf.png" alt="hi" align="left" width="250" /></p>
 <table>
   <tr>
     <td>
