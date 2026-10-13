@@ -61,4 +61,4 @@ $\color{#ad8db5}\text{pony}$ $\color{#c4a3cc}\text{town}$
 
 <img width="300" src="https://files.catbox.moe/qnnbx4.png" alt="hi" align="right" width="300" />
 
-<img width="800" src="https://files.catbox.moe/l2v5wt.png" alt="hi" align="center" width="600" /></p>
+<img width="800" src="https://files.catbox.moe/e5ktiy.png" alt="hi" align="center" width="600" /></p>
