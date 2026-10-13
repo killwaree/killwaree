@@ -29,7 +29,7 @@ $\color{#ad8db5}\text{pony}$ $\color{#c4a3cc}\text{town}$
 <table>
   <tr>
     <td>
-        $\color{#ad8db5}\textsf{Jealousy,}$ㅤ $\color{#986da3}\textsf{jealousy,}$ㅤ $\color{#c4a3cc}\textsf{jealousy}$ㅤ <img src="https://files.catbox.moe/lqbt2l.gif" alt="!"/>
+        $\color{#ad8db5}\textsf{Jealousy,}$ㅤ $\color{#986da3}\textsf{jealousy,}$ㅤ $\color{#c4a3cc}\textsf{jealousy}$ㅤ <img src="https://files.catbox.moe/itl4w3.gif" alt="!"/>
     </td>
   </tr>
 </table>
