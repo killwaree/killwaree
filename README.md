@@ -54,7 +54,7 @@ $\color{#ad8db5}\text{pony}$ $\color{#c4a3cc}\text{town}$
 
 
 
-<a href="https://killware.atabook.org" target="_blank"><img align="right" src="https://files.catbox.moe/hpzwgx.png" alt="atabook" width="26%"/></a>ㅤ <a href="https://haminationss.straw.page" target="_blank"><img align="right" src="https://files.catbox.moe/ubfcxx.png" alt="strawpage" width="26%"/></a>ㅤ 
+<a href="https://killware.atabook.org" target="_blank"><img align="right" src="https://files.catbox.moe/hpzwgx.png" alt="atabook" width="26%"/></a>ㅤ <a href="https://yawnnnnnnnn.straw.page" target="_blank"><img align="right" src="https://files.catbox.moe/ubfcxx.png" alt="strawpage" width="26%"/></a>ㅤ 
 <a href="https://pronouns.cc/@novaaspacezzzz" target="_blan" ><img align="center" src="https://files.catbox.moe/rjfokr.png" alt="prns" width="26%"/></a>
 
 
