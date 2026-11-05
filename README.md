@@ -51,6 +51,6 @@ $\color{#2f2f6e}\text{pony}$ $\color{#3c3c7a}\text{town}$ <img width="20" src="h
 
 <sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub>
 
-<sub><sup> (btw just a clarification I don’t support ai. this is from Turing Games on youtube) </sup></sub> 
+<sub><sup> (btw just a clarification I don’t support ai. this is from Turing Games in youtube) </sup></sub> 
 
  <img width="700" src="https://i.postimg.cc/BQM2MH3b/Untitled1912-20261104234610.png" alt="hi" align="center" width="500" /></p>
