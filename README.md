@@ -18,7 +18,7 @@ $\color{#2f2f6e}\text{pony}$ $\color{#3c3c7a}\text{town}$ <img width="20" src="h
 <table>
   <tr>
     <td>
-      <img width="400" src="https://i.postimg.cc/Vs4gChKt/IMG-9141.gif" alt="hi" align="center" width="300" /></p>
+      <img width="500" src="https://i.postimg.cc/Vs4gChKt/IMG-9141.gif" alt="hi" align="center" width="300" /></p>
     </td>
   </tr>
 </table>
