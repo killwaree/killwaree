@@ -2,7 +2,7 @@
 
  <img width="700" src="https://i.postimg.cc/kXcvzLQ6/D8D91A5F-0D34-4FDC-B2E5-90951A1C2B40.gif" alt="hi" align="center" width="500" /></p>
 
-[![Hits](https://hits.sh/github.com/killwaree.svg?style=flat-square&label=(%E2%9C%BF%E2%97%A0%E1%B4%97%E2%97%A0)&extraCount=100000000&color=434387&labelColor=1a1a3c)](https://hits.sh/github.com/killwaree/)
+[![Hits](https://hits.sh/github.com/killwaree.svg?style=plastic&label=(%CB%B6%CB%86%EA%92%B3%CB%86%CB%B5)%E2%B8%9D%E2%99%A1&extraCount=10000000000&color=393d95&labelColor=161633)](https://hits.sh/github.com/killwaree/)
 
 $\color{#2f2f6e}\text{doctor}$ㅤ $\color{#3c3c7a}\text{strange}$ㅤ $\color{#545491}\text{of}$
 $\color{#2f2f6e}\text{pony}$ $\color{#3c3c7a}\text{town}$ <img width="20" src="https://i.postimg.cc/bNHz19Qn/IMG-9114.gif" alt="hi" align="center" width="25" /></p>
