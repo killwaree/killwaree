@@ -4,13 +4,13 @@
 
 [![Hits](https://hits.sh/github.com/killwaree.svg?style=plastic&label=(%CB%B6%CB%86%EA%92%B3%CB%86%CB%B5)%E2%B8%9D%E2%99%A1&extraCount=10000000000&color=393d95&labelColor=161633)](https://hits.sh/github.com/killwaree/)
 
-$\color{#5c5a99}\text{doctor}$ㅤ $\color{#7181ab}\text{strange}$ㅤ $\color{#8da5ba}\text{of}$
-$\color{#5c5a99}\text{pony}$ $\color{#7181ab}\text{town}$ <img width="20" src="https://i.postimg.cc/bNHz19Qn/IMG-9114.gif" alt="hi" align="center" width="25" /></p>
+$\color{#ba605b}\text{doctor}$ㅤ $\color{#f2aa66}\text{strange}$ㅤ $\color{#f5da71}\text{of}$
+$\color{#9ee06c}\text{pony}$ $\color{#69b9db}\text{town}$ <img width="20" src="https://i.postimg.cc/RCXFx10N/IMG-9144.gif" alt="hi" align="center" width="25" /></p>
 
 <table>
   <tr>
     <td>
-  $\color{#5c5a99}\textsf{Sophie}$ㅤ $\color{#7181ab}\textsf{is}$ㅤ $\color{#8da5ba}\textsf{my}$ $\color{#5c5a99}\textsf{kitty!}$ㅤ <img src="https://i.postimg.cc/d1bqjWHV/IMG-9115.webp" alt="!"/>
+  $\color{#5c5a99}\textsf{Sophie}$ㅤ $\color{#7181ab}\textsf{is}$ㅤ $\color{#8da5ba}\textsf{my}$ $\color{#5c5a99}\textsf{kitty!}$ㅤ <img src="https://i.postimg.cc/W1cx9CPc/IMG-9146.gif" alt="!"/>
     </td>
   </tr>
 </table>
@@ -44,7 +44,7 @@ $\color{#5c5a99}\text{pony}$ $\color{#7181ab}\text{town}$ <img width="20" src="h
 <table>
   <tr>
     <td>
-        $\color{#5c5a99}\textsf{Sophie}$ㅤ $\color{#7181ab}\textsf{is}$ㅤ $\color{#8da5ba}\textsf{my}$ㅤ $\color{#5c5a99}\textsf{kitty}$ $\color{#7181ab}\textsf{and}$ $\color{#8da5ba}\textsf{i}$ $\color{#5c5a99}\textsf{think}$ $\color{#7181ab}\textsf{she’s}$ $\color{#8da5ba}\textsf{pretty!}$ <img src="https://i.postimg.cc/DwnwNM2C/IMG-9113.gif" alt="!"
+        $\color{#5c5a99}\textsf{Sophie}$ㅤ $\color{#7181ab}\textsf{is}$ㅤ $\color{#8da5ba}\textsf{my}$ㅤ $\color{#5c5a99}\textsf{kitty}$ $\color{#7181ab}\textsf{and}$ $\color{#8da5ba}\textsf{i}$ $\color{#5c5a99}\textsf{think}$ $\color{#7181ab}\textsf{she’s}$ $\color{#8da5ba}\textsf{pretty!}$ <img src="https://i.postimg.cc/vDF2Ngk2/IMG-9147.gif" alt="!"
     </td>
   </tr>
 </table>
