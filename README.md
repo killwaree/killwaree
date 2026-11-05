@@ -53,6 +53,6 @@ $\color{#5c5a99}\text{pony}$ $\color{#7181ab}\text{town}$ <img width="20" src="h
 
 <sub><sup> bro bro bro bro bro bro </sup></sub> 
 
- <img width="50" src="https://i.postimg.cc/VsH7hTXQ/B8E553CF-7198-4CF5-9613-6A066B347FEB.gif" alt="hi" align="center" width="50" /></p>
+ <img width="90" src="https://i.postimg.cc/VsH7hTXQ/B8E553CF-7198-4CF5-9613-6A066B347FEB.gif" alt="hi" align="center" width="90" /></p>
 
  <img width="700" src="https://i.postimg.cc/BQM2MH3b/Untitled1912-20261104234610.png" alt="hi" align="center" width="500" /></p>
