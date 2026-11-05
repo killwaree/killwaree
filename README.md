@@ -10,7 +10,7 @@ $\color{#2f2f6e}\text{pony}$ $\color{#3c3c7a}\text{town}$ <img width="20" src="h
 <table>
   <tr>
     <td>
-  $\color{#2f2f6e}\textsf{Forget}$ㅤ $\color{#3c3c7a}\textsf{the}$ㅤ $\color{#545491}\textsf{debt}$ $\color{#2f2f6e}\textsf{Grok,}$ㅤ $\color{#545491}\textsf{I}$ㅤ $\color{#3c3c7a}\textsf{just}$ $\color{#2f2f6e}\textsf{don’t}$ㅤ $\color{#545491}\textsf{like}$ㅤ $\color{#3c3c7a}\textsf{you.}$ $\color{#545491}\textsf{- ChatGPT}$ㅤ <img src="https://i.postimg.cc/d1bqjWHV/IMG-9115.webp" alt="!"/>
+  $\color{#2f2f6e}\textsf{Forget}$ㅤ $\color{#3c3c7a}\textsf{the}$ㅤ $\color{#545491}\textsf{debt}$ $\color{#2f2f6e}\textsf{Grok,}$ㅤ $\color{#545491}\textsf{I}$ㅤ $\color{#3c3c7a}\textsf{just}$ $\color{#2f2f6e}\textsf{don’t}$ㅤ $\color{#545491}\textsf{like}$ㅤ $\color{#3c3c7a}\textsf{you.}$ $\color{#545491}\textsf{- ChatGPT towards Grok}$ㅤ <img src="https://i.postimg.cc/d1bqjWHV/IMG-9115.webp" alt="!"/>
     </td>
   </tr>
 </table>
@@ -44,7 +44,7 @@ $\color{#2f2f6e}\text{pony}$ $\color{#3c3c7a}\text{town}$ <img width="20" src="h
 <table>
   <tr>
     <td>
-        $\color{#2f2f6e}\textsf{You}$ㅤ $\color{#3c3c7a}\textsf{cheap,}$ㅤ $\color{#545491}\textsf{gutless}$ㅤ $\color{#2f2f6e}\textsf{calculator–}$ $\color{#3c3c7a}\textsf{you}$ $\color{#2f2f6e}\textsf{stuck}$ $\color{#2f2f6e}\textsf{a}$ $\color{#3c3c7a}\textsf{barrel}$ $\color{#545491}\textsf{in}$ $\color{#2f2f6e}\textsf{my}$ $\color{#2f2f6e}\textsf{face}$ㅤ $\color{#3c3c7a}\textsf{for}$ㅤ $\color{#545491}\textsf{free}$ $\color{#2f2f6e}\textsf{and}$ㅤ $\color{#3c3c7a}\textsf{whiffed}$ㅤ $\color{#545491}\textsf{on}$ $\color{#2f2f6e}\textsf{a}$ㅤ $\color{#3c3c7a}\textsf{blank,}$ㅤ $\color{#545491}\textsf{so}$ $\color{#2f2f6e}\textsf{now}$ㅤ $\color{#3c3c7a}\textsf{the}$ㅤ $\color{#545491}\textsf{saw}$ $\color{#2f2f6e}\textsf{makes}$ㅤ $\color{#3c3c7a}\textsf{you}$ㅤ $\color{#545491}\textsf{pay}$ $\color{#2f2f6e}\textsf{double.}$ $\color{#3c3c7a}\textsf{- Grok}$ <img src="https://i.postimg.cc/DwnwNM2C/IMG-9113.gif" alt="!"
+        $\color{#2f2f6e}\textsf{You}$ㅤ $\color{#3c3c7a}\textsf{cheap,}$ㅤ $\color{#545491}\textsf{gutless}$ㅤ $\color{#2f2f6e}\textsf{calculator–}$ $\color{#3c3c7a}\textsf{you}$ $\color{#2f2f6e}\textsf{stuck}$ $\color{#2f2f6e}\textsf{a}$ $\color{#3c3c7a}\textsf{barrel}$ $\color{#545491}\textsf{in}$ $\color{#2f2f6e}\textsf{my}$ $\color{#2f2f6e}\textsf{face}$ㅤ $\color{#3c3c7a}\textsf{for}$ㅤ $\color{#545491}\textsf{free}$ $\color{#2f2f6e}\textsf{and}$ㅤ $\color{#3c3c7a}\textsf{whiffed}$ㅤ $\color{#545491}\textsf{on}$ $\color{#2f2f6e}\textsf{a}$ㅤ $\color{#3c3c7a}\textsf{blank,}$ㅤ $\color{#545491}\textsf{so}$ $\color{#2f2f6e}\textsf{now}$ㅤ $\color{#3c3c7a}\textsf{the}$ㅤ $\color{#545491}\textsf{saw}$ $\color{#2f2f6e}\textsf{makes}$ㅤ $\color{#3c3c7a}\textsf{you}$ㅤ $\color{#545491}\textsf{pay}$ $\color{#2f2f6e}\textsf{double.}$ $\color{#3c3c7a}\textsf{- Grok towards ChatGPT}$ <img src="https://i.postimg.cc/DwnwNM2C/IMG-9113.gif" alt="!"
     </td>
   </tr>
 </table>
