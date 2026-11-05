@@ -51,7 +51,7 @@ $\color{#9ee06c}\text{pony}$ $\color{#69b9db}\text{town}$ <img width="20" src="h
 
 <sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub>
 
-<sub><sup> bro bro bro bro bro bro </sup></sub> 
+<sub><sup> [me] thinks: what if pug is $0 </sup></sub> 
 
  <img width="90" src="https://i.postimg.cc/VsH7hTXQ/B8E553CF-7198-4CF5-9613-6A066B347FEB.gif" alt="hi" align="center" width="90" /></p>
 
