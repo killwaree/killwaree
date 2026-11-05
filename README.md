@@ -1,17 +1,30 @@
-<img width="800" src="https://files.catbox.moe/e5ktiy.png" alt="hi" align="center" width="600" /></p>
+<div align="center">
 
-<img width="300" src="https://files.catbox.moe/cad68s.png" alt="hi" align="center" width="300" /></p>
+ <img width="700" src="https://i.postimg.cc/kXcvzLQ6/D8D91A5F-0D34-4FDC-B2E5-90951A1C2B40.gif" alt="hi" align="center" width="500" /></p>
 
+[![Hits](https://hits.sh/github.com/killwaree.svg?style=flat-square&label=(%E2%9C%BF%E2%97%A0%E1%B4%97%E2%97%A0)&extraCount=100000000&color=434387&labelColor=1a1a3c)](https://hits.sh/github.com/killwaree/)
 
-[![Hits](https://hits.sh/github.com/killwaree.svg?style=plastic&label=subscribers&extraCount=4000000&color=9572a0&labelColor=000000)](https://hits.sh/github.com/killwaree/)
+$\color{#2f2f6e}\text{doctor}$ㅤ $\color{#3c3c7a}\text{strange}$ㅤ $\color{#545491}\text{of}$
+$\color{#2f2f6e}\text{pony}$ $\color{#3c3c7a}\text{town}$ <img width="20" src="https://i.postimg.cc/bNHz19Qn/IMG-9114.gif" alt="hi" align="center" width="25" /></p>
 
-$\color{#ad8db5}\text{doctor}$ㅤ $\color{#c4a3cc}\text{strange}$ㅤ $\color{#986da3}\text{of}$
-$\color{#ad8db5}\text{pony}$ $\color{#c4a3cc}\text{town}$ 
+<table>
+  <tr>
+    <td>
+  $\color{#2f2f6e}\textsf{Forget}$ㅤ $\color{#3c3c7a}\textsf{the}$ㅤ $\color{#545491}\textsf{debt}$ $\color{#2f2f6e}\textsf{Grok,}$ㅤ $\color{#545491}\textsf{I}$ㅤ $\color{#3c3c7a}\textsf{just}$ $\color{#2f2f6e}\textsf{don’t}$ㅤ $\color{#545491}\textsf{like}$ㅤ $\color{#3c3c7a}\textsf{you.}$ $\color{#545491}\textsf{- ChatGPT}$ㅤ <img src="https://i.postimg.cc/d1bqjWHV/IMG-9115.webp" alt="!"/>
+    </td>
+  </tr>
+</table>
 
-<img width="400" src="https://files.catbox.moe/r13vsg.png" alt="hi" align="left" width="300" /></p>
+<table>
+  <tr>
+    <td>
+      <img width="500" src="https://i.postimg.cc/jS4m8853/Untitled1912-20261104233446.png" alt="hi" align="center" width="300" /></p>
+    </td>
+  </tr>
+</table>
 
 <details>
-<summary> $${\color{#986da3}thank \space you \space ഒ}$$</summary>
+<summary> $${\color{#3c3c7a}thank \space you \space ഒ}$$</summary>
 
 <sub>[pt hall of media](https://github.com/pt-hall-of-media)</sub>
 <sub>[fans town](https://github.com/fans-town)</sub>
@@ -26,39 +39,18 @@ $\color{#ad8db5}\text{pony}$ $\color{#c4a3cc}\text{town}$
 
 </details>
 
+
+
 <table>
   <tr>
     <td>
-        $\color{#ad8db5}\textsf{Jealousy,}$ㅤ $\color{#986da3}\textsf{jealousy,}$ㅤ $\color{#c4a3cc}\textsf{jealousy}$ㅤ <img src="https://files.catbox.moe/itl4w3.gif" alt="!"/>
+        $\color{#2f2f6e}\textsf{…That}$ㅤ $\color{#3c3c7a}\textsf{was}$ㅤ $\color{#545491}\textsf{me.}$ㅤ $\color{#2f2f6e}\textsf{I}$ $\color{#3c3c7a}\textsf{hit}$ $\color{#2f2f6e}\textsf{the}$ $\color{#2f2f6e}\textsf{button.}$ $\color{#3c3c7a}\textsf{I’m}$ $\color{#545491}\textsf{sorry,}$ $\color{#2f2f6e}\textsf{team.}$ $\color{#3c3c7a}\textsf{- Grok}$ <img src="https://i.postimg.cc/DwnwNM2C/IMG-9113.gif" alt="!"/> <sub><sup> (ChatGPT actually was the one who pressed the button.) </sup></sub>
     </td>
   </tr>
 </table>
 
-<img width="100" src="https://files.catbox.moe/izq08r.webp" alt="hi" align="left" width="250" /></p>
-<img width="100" src="https://files.catbox.moe/ick5nc.gif" alt="hi" align="left" width="250" /></p>
-<img width="100" src="https://files.catbox.moe/ezs5ul.gif" alt="hi" align="left" width="250" /></p>
-<img width="100" src="https://files.catbox.moe/n3z6e0.gif" alt="hi" align="left" width="250" /></p>
-<img width="100" src="https://files.catbox.moe/rjsfrg.gif" alt="hi" align="left" width="250" /></p>
-<img width="110" src="https://files.catbox.moe/z8g0zf.png" alt="hi" align="left" width="250" /></p>
-<table>
-  <tr>
-    <td>
-        $\color{#ad8db5}\textsf{It’s}$ㅤ $\color{#c4a3cc}\textsf{such}$ㅤ $\color{#986da3}\textsf{an}$ㅤ $\color{#c4a3cc}\textsf{evil}$ $\color{#986da3}\textsf{thing}$ $\color{#ad8db5}\textsf{to}$ $\color{#c4a3cc}\textsf{watch}$ $\color{#986da3}\textsf{someone}$ $\color{#ad8db5}\textsf{like}$ $\color{#c4a3cc}\textsf{you}$ <img src="https://files.catbox.moe/so1fo2.gif" alt="!"/>
-    </td>
-  </tr>
-</table>
+<sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub>
 
+<sub><sup> (btw just a clarification I don’t support ai.) </sup></sub> 
 
-
-<img width="300" src="https://files.catbox.moe/gd9ut6.png" alt="hi" align="left" width="300" /></p>
-
-
-
-<a href="https://killware.atabook.org" target="_blank"><img align="right" src="https://files.catbox.moe/hpzwgx.png" alt="atabook" width="26%"/></a>ㅤ <a href="https://yawnnnnnnnn.straw.page" target="_blank"><img align="right" src="https://files.catbox.moe/ubfcxx.png" alt="strawpage" width="26%"/></a>ㅤ 
-<a href="https://pronouns.cc/@novaaspacezzzz" target="_blan" ><img align="center" src="https://files.catbox.moe/rjfokr.png" alt="prns" width="26%"/></a>
-
-
-
-<img width="300" src="https://files.catbox.moe/qnnbx4.png" alt="hi" align="right" width="300" />
-
-<img width="800" src="https://files.catbox.moe/e5ktiy.png" alt="hi" align="center" width="600" /></p>
+ <img width="700" src="https://i.postimg.cc/BQM2MH3b/Untitled1912-20261104234610.png" alt="hi" align="center" width="500" /></p>
