@@ -4,13 +4,13 @@
 
 [![Hits](https://hits.sh/github.com/killwaree.svg?style=plastic&label=(%CB%B6%CB%86%EA%92%B3%CB%86%CB%B5)%E2%B8%9D%E2%99%A1&extraCount=10000000000&color=393d95&labelColor=161633)](https://hits.sh/github.com/killwaree/)
 
-$\color{#2f2f6e}\text{doctor}$ㅤ $\color{#3c3c7a}\text{strange}$ㅤ $\color{#545491}\text{of}$
-$\color{#2f2f6e}\text{pony}$ $\color{#3c3c7a}\text{town}$ <img width="20" src="https://i.postimg.cc/bNHz19Qn/IMG-9114.gif" alt="hi" align="center" width="25" /></p>
+$\color{#5c5a99}\text{doctor}$ㅤ $\color{#7181ab}\text{strange}$ㅤ $\color{#8da5ba}\text{of}$
+$\color{#5c5a99}\text{pony}$ $\color{#7181ab}\text{town}$ <img width="20" src="https://i.postimg.cc/bNHz19Qn/IMG-9114.gif" alt="hi" align="center" width="25" /></p>
 
 <table>
   <tr>
     <td>
-  $\color{#2f2f6e}\textsf{Forget}$ㅤ $\color{#3c3c7a}\textsf{the}$ㅤ $\color{#545491}\textsf{debt}$ $\color{#2f2f6e}\textsf{Grok,}$ㅤ $\color{#545491}\textsf{I}$ㅤ $\color{#3c3c7a}\textsf{just}$ $\color{#2f2f6e}\textsf{don’t}$ㅤ $\color{#545491}\textsf{like}$ㅤ $\color{#3c3c7a}\textsf{you.}$ $\color{#545491}\textsf{- ChatGPT to Grok}$ㅤ <img src="https://i.postimg.cc/d1bqjWHV/IMG-9115.webp" alt="!"/>
+  $\color{#2f2f6e}\textsf{Sophie}$ㅤ $\color{#3c3c7a}\textsf{is}$ㅤ $\color{#545491}\textsf{my}$ $\color{#2f2f6e}\textsf{kitty!}$ㅤ <img src="https://i.postimg.cc/d1bqjWHV/IMG-9115.webp" alt="!"/>
     </td>
   </tr>
 </table>
@@ -24,7 +24,7 @@ $\color{#2f2f6e}\text{pony}$ $\color{#3c3c7a}\text{town}$ <img width="20" src="h
 </table>
 
 <details>
-<summary> $${\color{#3c3c7a}thank \space you \space ഒ}$$</summary>
+<summary> $${\color{#7181ab}thank \space you \space ഒ}$$</summary>
 
 <sub>[pt hall of media](https://github.com/pt-hall-of-media)</sub>
 <sub>[fans town](https://github.com/fans-town)</sub>
@@ -44,13 +44,15 @@ $\color{#2f2f6e}\text{pony}$ $\color{#3c3c7a}\text{town}$ <img width="20" src="h
 <table>
   <tr>
     <td>
-        $\color{#2f2f6e}\textsf{You}$ㅤ $\color{#3c3c7a}\textsf{cheap,}$ㅤ $\color{#545491}\textsf{gutless}$ㅤ $\color{#2f2f6e}\textsf{calculator–}$ $\color{#3c3c7a}\textsf{you}$ $\color{#2f2f6e}\textsf{stuck}$ $\color{#2f2f6e}\textsf{a}$ $\color{#3c3c7a}\textsf{barrel}$ $\color{#545491}\textsf{in}$ $\color{#2f2f6e}\textsf{my}$ $\color{#2f2f6e}\textsf{face}$ㅤ $\color{#3c3c7a}\textsf{for}$ㅤ $\color{#545491}\textsf{free}$ $\color{#2f2f6e}\textsf{and}$ㅤ $\color{#3c3c7a}\textsf{whiffed}$ㅤ $\color{#545491}\textsf{on}$ $\color{#2f2f6e}\textsf{a}$ㅤ $\color{#3c3c7a}\textsf{blank,}$ㅤ $\color{#545491}\textsf{so}$ $\color{#2f2f6e}\textsf{now}$ㅤ $\color{#3c3c7a}\textsf{the}$ㅤ $\color{#545491}\textsf{saw}$ $\color{#2f2f6e}\textsf{makes}$ㅤ $\color{#3c3c7a}\textsf{you}$ㅤ $\color{#545491}\textsf{pay}$ $\color{#2f2f6e}\textsf{double.}$ $\color{#3c3c7a}\textsf{- Grok to ChatGPT}$ <img src="https://i.postimg.cc/DwnwNM2C/IMG-9113.gif" alt="!"
+        $\color{#5c5a99}\textsf{Sophie}$ㅤ $\color{#7181ab}\textsf{is}$ㅤ $\color{#8da5ba}\textsf{my}$ㅤ $\color{#5c5a99}\textsf{kitty}$ $\color{#7181ab}\textsf{and}$ $\color{#8da5ba}\textsf{i}$ $\color{#5c5a99}\textsf{think}$ $\color{#7181ab}\textsf{she’s}$ $\color{#8da5ba}\textsf{pretty!}$ <img src="https://i.postimg.cc/DwnwNM2C/IMG-9113.gif" alt="!"
     </td>
   </tr>
 </table>
 
 <sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub>
 
-<sub><sup> (btw just a clarification I don’t support ai. this is from Turing Games on youtube) </sup></sub> 
+<sub><sup> bro bro bro bro bro bro </sup></sub> 
+
+ <img width="50" src="https://i.postimg.cc/VsH7hTXQ/B8E553CF-7198-4CF5-9613-6A066B347FEB.gif" alt="hi" align="center" width="50" /></p>
 
  <img width="700" src="https://i.postimg.cc/BQM2MH3b/Untitled1912-20261104234610.png" alt="hi" align="center" width="500" /></p>
