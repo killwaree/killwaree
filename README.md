@@ -10,7 +10,7 @@ $\color{#5c5a99}\text{pony}$ $\color{#7181ab}\text{town}$ <img width="20" src="h
 <table>
   <tr>
     <td>
-  $\color{#2f2f6e}\textsf{Sophie}$ㅤ $\color{#3c3c7a}\textsf{is}$ㅤ $\color{#545491}\textsf{my}$ $\color{#2f2f6e}\textsf{kitty!}$ㅤ <img src="https://i.postimg.cc/d1bqjWHV/IMG-9115.webp" alt="!"/>
+  $\color{#5c5a99}\textsf{Sophie}$ㅤ $\color{#7181ab}\textsf{is}$ㅤ $\color{#8da5ba}\textsf{my}$ $\color{#5c5a99}\textsf{kitty!}$ㅤ <img src="https://i.postimg.cc/d1bqjWHV/IMG-9115.webp" alt="!"/>
     </td>
   </tr>
 </table>
