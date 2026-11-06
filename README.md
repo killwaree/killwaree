@@ -24,7 +24,7 @@ $\color{#9ee06c}\text{pony}$ $\color{#69b9db}\text{town}$ <img width="20" src="h
 </table>
 
 <details>
-<summary> $${\color{#7181ab}thank \space you \space ഒ}$$</summary>
+<summary> $${\color{#7181ab}{♡}$$</summary>
 
 <sub>[pt hall of media](https://github.com/pt-hall-of-media)</sub>
 <sub>[fans town](https://github.com/fans-town)</sub>
@@ -49,7 +49,7 @@ $\color{#9ee06c}\text{pony}$ $\color{#69b9db}\text{town}$ <img width="20" src="h
   </tr>
 </table>
 
-<sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub>
+<sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub> <sub>[guns.lol](https://guns.lol/novaaspacezz)</sub>
 
 <sub><sup> [me] thinks: what if pug is $0 </sup></sub> 
 
