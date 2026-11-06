@@ -24,7 +24,7 @@ $\color{#9ee06c}\text{pony}$ $\color{#69b9db}\text{town}$ <img width="20" src="h
 </table>
 
 <details>
-<summary> $${\color{#7181ab}{♡}$$</summary>
+<summary> $${\color{#7181ab}♡}$$</summary>
 
 <sub>[pt hall of media](https://github.com/pt-hall-of-media)</sub>
 <sub>[fans town](https://github.com/fans-town)</sub>
