@@ -1,30 +1,29 @@
-<div align="center">
+<div align="left">
 
- <img width="700" src="https://i.postimg.cc/kXcvzLQ6/D8D91A5F-0D34-4FDC-B2E5-90951A1C2B40.gif" alt="hi" align="center" width="500" /></p>
+ <img width="900" src="https://files.catbox.moe/1nj699.png" alt="hi" align="left" width="500" /></p>
 
-[![Hits](https://hits.sh/github.com/killwaree.svg?style=plastic&label=(%CB%B6%CB%86%EA%92%B3%CB%86%CB%B5)%E2%B8%9D%E2%99%A1&extraCount=10000000000&color=393d95&labelColor=161633)](https://hits.sh/github.com/killwaree/)
 
-$\color{#ba605b}\text{doctor}$ㅤ $\color{#f2aa66}\text{strange}$ㅤ $\color{#f5da71}\text{of}$
-$\color{#9ee06c}\text{pony}$ $\color{#69b9db}\text{town}$ <img width="20" src="https://i.postimg.cc/RCXFx10N/IMG-9144.gif" alt="hi" align="center" width="25" /></p>
+<img width="90" src="https://files.catbox.moe/jr0adx.gif" alt="hi" align="left" width="500" /></p>
 
-<table>
-  <tr>
-    <td>
-  $\color{#5c5a99}\textsf{Sophie}$ㅤ $\color{#7181ab}\textsf{is}$ㅤ $\color{#8da5ba}\textsf{my}$ $\color{#5c5a99}\textsf{kitty!}$ㅤ <img src="https://i.postimg.cc/W1cx9CPc/IMG-9146.gif" alt="!"/>
-    </td>
-  </tr>
-</table>
 
 <table>
   <tr>
     <td>
-      <img width="500" src="https://i.postimg.cc/Vs4gChKt/IMG-9141.gif" alt="hi" align="center" width="300" /></p>
+  $\color{#cbccc2}\textsf{I}$ㅤ $\color{#b0b8a7}\textsf{fuck}$ㅤ $\color{#8da38b}\textsf{with}$ $\color{#cbccc2}\textsf{popeyes}$ㅤ $\color{#b0b8a7}\textsf{you}$ㅤ $\color{#8da38b}\textsf{will}$ $\color{#cbccc2}\textsf{shut}$ㅤ $\color{#b0b8a7}\textsf{your}$ㅤ $\color{#8da38b}\textsf{damn}$ $\color{#cbccc2}\textsf{mouth}$ <img width="50" src="https://files.catbox.moe/1a4xg5.gif" alt="hi" align="left" width="60" /></p>
     </td>
   </tr>
 </table>
+
+$\color{#cbccc2}\text{doctor}$ㅤ $\color{#b0b8a7}\text{strange}$ㅤ $\color{#8da38b}\text{of}$
+$\color{#cbccc2}\text{pony}$ $\color{#b0b8a7}\text{town}$ <img width="20" src="https://files.catbox.moe/299cna.gif" alt="hi" align="center" width="25" /></p>
+
+<img width="220" src="https://files.catbox.moe/dq7096.png" alt="hi" align="center" width="500" /></p>
+
+ <img width="500" src="https://files.catbox.moe/ewp0d3.png" alt="hi" align="left" width="300" /></p>
+
 
 <details>
-<summary> $${\color{#7181ab}♡}$$</summary>
+<summary> $${\color{#8da38b}thank \space you \space ഒ}$$</summary>
 
 <sub>[pt hall of media](https://github.com/pt-hall-of-media)</sub>
 <sub>[fans town](https://github.com/fans-town)</sub>
@@ -39,20 +38,27 @@ $\color{#9ee06c}\text{pony}$ $\color{#69b9db}\text{town}$ <img width="20" src="h
 
 </details>
 
+[![Hits](https://hits.sh/github.com/killwaree.svg?style=flat-square&label=%E2%98%85%E2%8C%92(%20%E2%80%A2__%E2%80%A2%20)&extraCount=10000000000&color=909a95&labelColor=262e2c)](https://hits.sh/github.com/killwaree/)
 
+<img width="100" src="https://files.catbox.moe/oc15fg.gif" alt="hi" align="left" width="100" /></p>
+
+
+<img width="300" src="https://files.catbox.moe/1eltjy.png" alt="hi" align="right" width="300" /></p>
+
+
+<sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub>
+
+<sub><sup> (𝗲ղ𝗍𝗋𝛐𝗽ყ ᑯυֹׅ𝛐) </sup></sub>
 
 <table>
   <tr>
     <td>
-        $\color{#5c5a99}\textsf{Sophie}$ㅤ $\color{#7181ab}\textsf{is}$ㅤ $\color{#8da5ba}\textsf{my}$ㅤ $\color{#5c5a99}\textsf{kitty}$ $\color{#7181ab}\textsf{and}$ $\color{#8da5ba}\textsf{i}$ $\color{#5c5a99}\textsf{think}$ $\color{#7181ab}\textsf{she’s}$ $\color{#8da5ba}\textsf{pretty!}$ <img src="https://i.postimg.cc/vDF2Ngk2/IMG-9147.gif" alt="!"
+        $\color{#cbccc2}\textsf{u}$ㅤ $\color{#b0b8a7}\textsf{eat}$ㅤ $\color{#8da38b}\textsf{anything}$ㅤ $\color{#cbccc2}\textsf{u}$ $\color{#b0b8a7}\textsf{fat}$ $\color{#8da38b}\textsf{fucking}$ $\color{#cbccc2}\textsf{whale}$ <img src="https://i.postimg.cc/HnWd25sY/IMG-9188.gif" alt="!"/>
     </td>
   </tr>
 </table>
 
-<sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub> <sub>[guns.lol](https://guns.lol/novaaspacezz)</sub>
+ <img width="900" src="https://files.catbox.moe/o0jxwm.png" alt="hi" align="center" width="500" /></p>
 
-<sub><sup> [me] thinks: what if pug is $0 </sup></sub> 
 
- <img width="90" src="https://i.postimg.cc/VsH7hTXQ/B8E553CF-7198-4CF5-9613-6A066B347FEB.gif" alt="hi" align="center" width="90" /></p>
 
- <img width="700" src="https://i.postimg.cc/BQM2MH3b/Untitled1912-20261104234610.png" alt="hi" align="center" width="500" /></p>
