@@ -3,7 +3,7 @@
  <img width="900" src="https://files.catbox.moe/1nj699.png" alt="hi" align="left" width="500" /></p>
 
 
-<img width="90" src="https://files.catbox.moe/jr0adx.gif" alt="hi" align="left" width="500" /></p>
+<img width="300" src="https://files.catbox.moe/jr0adx.gif" alt="hi" align="left" width="500" /></p>
 
 
 <table>
