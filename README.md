@@ -3,7 +3,7 @@
  <img width="900" src="https://files.catbox.moe/1nj699.png" alt="hi" align="left" width="500" /></p>
 
 
-<img width="300" src="https://files.catbox.moe/jr0adx.gif" alt="hi" align="left" width="500" /></p>
+<img width="100" src="https://files.catbox.moe/jr0adx.gif" alt="hi" align="left" width="500" /></p>
 
 
 <table>
@@ -17,7 +17,7 @@
 $\color{#cbccc2}\text{doctor}$ㅤ $\color{#b0b8a7}\text{strange}$ㅤ $\color{#8da38b}\text{of}$
 $\color{#cbccc2}\text{pony}$ $\color{#b0b8a7}\text{town}$ <img width="20" src="https://files.catbox.moe/299cna.gif" alt="hi" align="center" width="25" /></p>
 
-<img width="220" src="https://files.catbox.moe/dq7096.png" alt="hi" align="center" width="500" /></p>
+<img width="300" src="https://files.catbox.moe/dq7096.png" alt="hi" align="center" width="500" /></p>
 
  <img width="500" src="https://files.catbox.moe/ewp0d3.png" alt="hi" align="left" width="300" /></p>
 
