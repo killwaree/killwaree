@@ -46,7 +46,7 @@ $\color{#cbccc2}\text{pony}$ $\color{#b0b8a7}\text{town}$ <img width="20" src="h
 <img width="300" src="https://files.catbox.moe/1eltjy.png" alt="hi" align="right" width="300" /></p>
 
 
-<sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub>
+<sub>[atabook](https://killware.atabook.org)</sub> <sub>[strawpage](https://yawnnnnnnnn.straw.page)</sub> <sub>[prns.page](https://pronouns.cc/@novaaspacezzzz)</sub> <sub>[guns.lol](https://guns.lol/novaaspacezz)</sub>
 
 <sub><sup> (𝗲ղ𝗍𝗋𝛐𝗽ყ ᑯυֹׅ𝛐) </sup></sub>
 
