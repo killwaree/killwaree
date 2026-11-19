@@ -40,7 +40,7 @@ $\color{#cbccc2}\text{pony}$ $\color{#b0b8a7}\text{town}$ <img width="20" src="h
 
 [![Hits](https://hits.sh/github.com/killwaree.svg?style=flat-square&label=%E2%98%85%E2%8C%92(%20%E2%80%A2__%E2%80%A2%20)&extraCount=10000000000&color=909a95&labelColor=262e2c)](https://hits.sh/github.com/killwaree/)
 
-⠀ ⠀ ⠀ ⠀  <sub> (sp/sx 953 9w1) </sub>
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <sub> sp/sx 953 9w1 </sub>
 
 <img width="100" src="https://files.catbox.moe/oc15fg.gif" alt="hi" align="left" width="100" /></p>
 
